@@ -6,8 +6,6 @@
 
 - 📫 How to reach me **adityar.hits@gmail.com**
 
-- 📄 Know about my experiences [https://online.publuu.com/585236/1313162](https://online.publuu.com/585236/1313162)
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
